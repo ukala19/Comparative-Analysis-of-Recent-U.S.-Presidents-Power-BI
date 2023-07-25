@@ -24,5 +24,6 @@ William J. Clinton holds the record for the highest number of total executive or
 Barack Obama, George W. Bush, Ronald Reagan, and William J. Clinton served the longest as Presidents, while Joseph R. Biden has the shortest tenure as he is currently serving as president.
 Jimmy Carter has the highest average executive orders, while Barack Obama has the lowest. However, the number of executive orders does not determine the effectiveness of leadership as it can vary based on various factors and priorities.
 Barack Obama, George W. Bush, Ronald Reagan, and William J. Clinton have served two full terms and Richard Nixon one full term and one partial due to some issues.
+
 **Conclusion:**
 Every President brings a distinct set of qualities, experiences, and perspectives to their role, distinguishing each presidency. Even though obstacles can vary, it is essential to recognize that seemingly insurmountable tasks can be completed with sincere and dedicated effort. Each President can make a lasting impact by capitalizing on their individual strengths and embracing the possibility of positive change.
